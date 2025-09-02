@@ -28,7 +28,7 @@ I have experience as an online shop administrator and have been actively involve
 
 ---
 
-## Education
+## 🎓 Education
 - **High School:** SMK MUHAMMADIYAH KRAGILAN Serang, 2017 - 2020
 
 ---
