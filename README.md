@@ -29,7 +29,10 @@ I have experience as an online shop administrator and have been actively involve
 ---
 
 ## Education
-- **High School:** SMA Negeri 1 Jakarta, 2015 - 2018
+- **High School:** SMK MUHAMMADIYAH KRAGILAN Serang, 2017 - 2020
+
+---
+
 ## 🧰 Skills
 - Google Docs, Microsoft Word, Spreadsheets, Microsoft Excel, and PowerPoint
 - Scheduling and Documenting Activities
@@ -46,6 +49,14 @@ I’m looking to grow in roles like customer service or administrative support i
 
 ---
 
+![Ijazah](Ijazah)
+
+---
+
+![Daftar Nilai](Daftar_Nilai)
+
+---
 
 ## 📑 [**CERTIFICATE**](https://drive.google.com/drive/folders/1lVZgX5vrwEWNz6cTBgHvwJ7hBFE9TS3Y)
+
 
