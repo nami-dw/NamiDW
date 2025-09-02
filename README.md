@@ -40,7 +40,7 @@ I have experience as an online shop administrator and have been actively involve
 ---
 
 ## 🚀 Career Goals
-I’m looking to grow in roles like customer service or administrative support ideally in modern tech-driven environments or remote setups. I enjoy working with people, solving problems, and staying organized. I’m also open to learning new things and exploring different roles as I build my career.
+I’m looking to grow in roles related to administration or data management, ideally in modern tech-driven environments or remote setups. I enjoy working with people, solving problems, and staying organized. I am enthusiastic about learning new things, especially those related to data and administration, and open to exploring different roles as I build my career.
 
 ---
 
