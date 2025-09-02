@@ -28,19 +28,24 @@ I have experience as an online shop administrator and have been actively involve
 
 ---
 
+## Education
+- **High School:** SMA Negeri 1 Jakarta, 2015 - 2018
 ## 🧰 Skills
 - Google Docs, Microsoft Word, Spreadsheets, Microsoft Excel, and PowerPoint
 - Scheduling and Documenting Activities
 
 ---
 
-## 📫 Contact
-- 📧 Email: namirohdewiutami@email.com
-
 ## 🚀 Career Goals
 I’m looking to grow in roles like customer service or administrative support ideally in modern tech-driven environments or remote setups. I enjoy working with people, solving problems, and staying organized. I’m also open to learning new things and exploring different roles as I build my career.
 
 ---
+
+## 📫 Contact
+- 📧 Email: namirohdewiutami@email.com
+
+---
+
 
 ## 📑 [**CERTIFICATE**](https://drive.google.com/drive/folders/1lVZgX5vrwEWNz6cTBgHvwJ7hBFE9TS3Y)
 
