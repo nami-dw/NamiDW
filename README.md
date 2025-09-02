@@ -1,3 +1,6 @@
+
+[**CV_NamirohDewiUtami_WarehouseAdministrator**](https://drive.google.com/file/d/1O7HMTake1gpxrQHbbQYXVhFP4M-xMRAh/view?usp=drivesdk)
+
 # Hello! I'm Namiroh Dewi Utami 👋
 
 I have experience as an online shop administrator and have been actively involved in a student organization. I am pursuing a career in administration with a focus on efficiency, professionalism, and accuracy. I also have a strong interest in data processing and am proficient in using Microsoft Excel to organize, analyze, and present data.
@@ -45,7 +48,7 @@ I’m looking to grow in roles related to administration or data management, ide
 ---
 
 ## 📫 Contact
-- 📧 Email: namirohdewiutami@email.com
+- 📧 Email: namirohdewi21@email.com
 
 ---
 
