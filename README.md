@@ -24,15 +24,15 @@ I have experience as an online shop administrator and have been actively involve
 - Preparing logistics and participant attendance
 - Building collaboration with the community and volunteers
 
-### 🎓 Teaching Program Committee in Kindergarten & Elementary School (January-April 2025)
+### 👩🏻‍🏫 Teaching Program Committee in Kindergarten & Elementary School (January-April 2025)
 - Facilitate educational activities and games
 - Develop simple materials for early childhood
 - Manage children's interactions and maintain discipline
 
 ---
 
-## 🎓 Education (Serang, 2017 - 2020)
-- **High School:** SMK MUHAMMADIYAH KRAGILAN
+## 🎓 Education
+- **High School:** SMK MUHAMMADIYAH KRAGILAN  (Serang, 2017 - 2020)
 
 ---
 
